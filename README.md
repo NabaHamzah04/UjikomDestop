@@ -1,2 +1,0 @@
-# UjikomDestop
-Persiapan Ujikom
